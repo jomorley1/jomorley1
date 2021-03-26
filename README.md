@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jomorley1
+- 😻 Cat Love
+- 📫 How to reach me IG @joddiiee.x
